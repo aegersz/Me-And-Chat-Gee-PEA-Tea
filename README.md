@@ -1,4 +1,4 @@
-# ABSURD-YET-SERIOUS.ua
+# ABSURD-YET-SERIOUS.us
 
 Me & Chat Gee PEA Tea:
 
